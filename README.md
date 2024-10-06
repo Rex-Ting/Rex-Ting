@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rex-Ting
+- 👀 I’m interested in anime
+- 🌱 I’m currently learning GCSE
+- ⚡ Fun fact: I am handsome
